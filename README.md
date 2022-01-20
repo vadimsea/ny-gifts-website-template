@@ -1,1 +1,1 @@
-# check out its here https://vadimsea.github.io/ny-gifts-website-template/
+# https://vadimsea.github.io/ny-gifts-website-template/
